@@ -22,8 +22,6 @@ YouTube channel do aubecribe and click on Bell and come back to
 
 Termux you Will be able to use this tool for free
 
-Hope & You Love the fool for any queries or error comment To
+𝙃𝙤𝙥𝙚 𝙔𝙤𝙪 𝙇𝙞𝙠𝙚 𝙩𝙝𝙚 𝙏𝙤𝙤𝙡 𝙨𝙤 𝙥𝙡𝙯 𝙨𝙪𝙥𝙥𝙤𝙧𝙩 𝙪𝙨 👇🏼👇🏼
 
-Learn Hacking join our Channel 👇🏼👇🏼👇🏼👇🏼👇🏼
-
-https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
+𝙝𝙩𝙩𝙥𝙨://𝙮𝙤𝙪𝙩𝙪𝙗𝙚.𝙘𝙤𝙢/@𝙝𝙖𝙘𝙠𝙚𝙧𝙨_𝙘𝙤𝙡𝙤𝙣𝙮_𝙩𝙚𝙘𝙝?𝙨𝙞=7𝙈𝙗𝙄9𝙨𝙢2𝙥𝙊𝙋𝘾1𝙇𝙋_
